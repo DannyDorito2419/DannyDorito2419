@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DannyDorito2419
+- 👀 I’m interested in ... Game development and music
+- 🌱 I’m currently learning ... html
+- 📫 How to reach me ... @kira.kira.studios on insta
+- 😄 Pronouns: ... He/They
+- ⚡ Fun fact: ... Im a giant human biology nerd
